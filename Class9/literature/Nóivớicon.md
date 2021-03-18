@@ -13,17 +13,17 @@
 ##### Ngày đầu tiên đẹp nhất trên đời.
 ##### 
 ##### Người đồng mình thương lắm con ơi.                     => NT : Điệp cấu trúc
-Cao đo nỗi buồn
-Xa nuôi chí lớn
+##### Cao đo nỗi buồn
+##### Xa nuôi chí lớn
 Dẫu làm sao thì cha vẫn muốn
 Sống trên đá không chê đá gập ghềnh.                   => NT : điệp ngữ, từ gợi cảm
-Sống trong thung không chê thung nghèo đói            ⬆
+Sống trong thung không chê thung nghèo đói             =>⬆
 Sống như sông như suối                                 => NT : so sánh, sử dụng thành ngữ
-Lên thác xuống ghềnh                                  ⬆
-Không lo cực nhọc                                     ⬆
-Người đồng mình thô sơ da thịt                        => NT : ẩn dụ, đối lập giàu hình ảnh
-Chẳng mấy ai nhỏ bé đâu con                           ⬆
-Người đồng mình tự đục đá kê cao quê hương            => NT : ẩn dụ, giọng điệu, giàu hình ảnh
+Lên thác xuống ghềnh                                   =>⬆
+Không lo cực nhọc                                      =>⬆
+Người đồng mình thô sơ da thịt                         => NT : ẩn dụ, đối lập giàu hình ảnh
+Chẳng mấy ai nhỏ bé đâu con                            =>⬆
+Người đồng mình tự đục đá kê cao quê hương             => NT : ẩn dụ, giọng điệu, giàu hình ảnh
 Còn quê hương thì làm phong tục
 Con ơi tuy thô sơ da thịt
 Lên đường
